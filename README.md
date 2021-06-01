@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kai27soccer
-- 👀 I’m interested in soccer and video-games like RocketLeague and FIFA
+- 👀 I’m interested in soccer and video games like RocketLeague and FIFA
 - 📫 How to reach me ... Discord: VSN | Hypsn#3525  Scratch: coding-turkey
 
 <!---

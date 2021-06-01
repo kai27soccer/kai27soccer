@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in soccer and video games like RocketLeague and FIFA
 
-- 📫 Discord: VSN | Hypsn#3525  Scratch: coding-turkey
+- 📫 Discord: VSN | Hypsn#3525     Scratch: coding-turkey
 
 <!---
 kai27soccer/kai27soccer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -4,7 +4,7 @@
 
 - 📫 Discord: VSN | Hypsn#3525
 
--😸😺Scratch: coding-turkey
+- 😸 Scratch: coding-turkey
 
 <!---
 kai27soccer/kai27soccer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
